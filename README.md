@@ -9,3 +9,8 @@ Many Chief guests came to the stage and gave speeches and valuable words to us.
 All the Chief Guests were awarded. 
 At the end of this day , We learned many new lessons and we had to implement in our daily life.
 ## Day 2
+English and Maths proficiency test:-
+Firstly, we gave English proficiency test .It contains two comprehension, letter, Email and basic grammar. It was good for me.
+Second test was of maths , it was very difficult for me because I was prepared for 12th based maths test and it was totally different. 
+Next lecture was by Dr. Arashdeep Singh on food . He told us many important things about food . "Our body needs Good quality Food". This lecture was very interesting.
+After this Causmic Club team came on the stage.
