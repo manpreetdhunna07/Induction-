@@ -13,4 +13,6 @@ English and Maths proficiency test:-
 Firstly, we gave English proficiency test .It contains two comprehension, letter, Email and basic grammar. It was good for me.
 Second test was of maths , it was very difficult for me because I was prepared for 12th based maths test and it was totally different. 
 Next lecture was by Dr. Arashdeep Singh on food . He told us many important things about food . "Our body needs Good quality Food". This lecture was very interesting.
-After this Causmic Club team came on the stage.
+After this Causmic Club team came on the stage. They gave us introduction of github and how to use it . Our seniors guided us about how to make repositories in github. 
+## Day 3
+
