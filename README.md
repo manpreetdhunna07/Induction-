@@ -18,4 +18,13 @@ After this Causmic Club team came on the stage. They gave us introduction of git
 lecture by Dr. Jaswinder Singh 
 He performed some experiments related to concepts of science. He told us that maths performs major role in universe. At end all things are connected with maths. He told us all about God and science . His lecture was really very interesting. According to him , number 9 means (rabb da naam ) . 
 Next lecture was of Dr. Priya Darshini Mam on Universal human values.
-She guided us about physical facilities,  relationships and right understanding. we all are only working for physical facilities but in our schedule right understanding and relationships are very important. So she told all about how we get real or continuous happiness in our life. Her lecture was very great and interacted. At last she gave us an assignment to note that how many hours of our day spent for physical facilities,  right understanding and relationships. 
+She guided us about physical facilities,  relationships and right understanding. we all are only working for physical facilities but in our schedule right understanding and relationships are very important. So she told all about how we get real or continuous happiness in our life. Her lecture was very great and interacted. At last she gave us an assignment to note that how many hours of our day spent for physical facilities,  right understanding and relationships.
+## Day 4
+lecture by Dr. Priya Darshini Mam gave us real knowledge about physical facilities, right understanding and relationships. She told us some sources of imagination as below:
+preconditions, sensations and purpose.
+she told us about our needs. This lecture is very effective for me.
+Next, there was a session by causmic club members .
+## Day 5
+lecture by Dr. Lakhvir Singh khana (CML incharge)
+He told us what is CML and what are the tasks done in CML. He gave information of achievements of CML. He also gave information about NPTEL courses . He suggested us to join NPTEL courses. 
+At last , Dr. Arvind Dhingra Sir came to the stage . 
